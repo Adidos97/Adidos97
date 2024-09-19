@@ -3,7 +3,7 @@
 - 🤌 I'm learning from lessons from YouTube
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me in tg @adidos97
-- 😄 Pronouns: parents 1
+- 😄 Pronouns: parent one
 - ⚡ Fun fact: 😲
 
 <!---
